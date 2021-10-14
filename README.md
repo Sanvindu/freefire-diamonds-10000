@@ -1,0 +1,1 @@
+# freefire-diamonds-10000
